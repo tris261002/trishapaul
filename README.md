@@ -1,0 +1,2 @@
+# trishapaul
+💻 Aesthetic GitHub Profile 💻
